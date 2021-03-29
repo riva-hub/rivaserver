@@ -1,1 +1,1 @@
-# rivaserver
+غیرفعال 
